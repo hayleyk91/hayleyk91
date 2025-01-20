@@ -1,4 +1,4 @@
-### Hi there.  I'm about to describe myself in third person 😃
+### Hi there. 👋  I'm about to describe myself in third person 😃
 Hayley Kanbara is a California-grown artist who transplated outside Phoenix, Arizona.  She earned her undergraduate degree in graphic design at Huntington University Arizona Center in 2022.  It was here where Hayley developed her skills in Adobe Photoshop and Illustrator to develop projects for school clients.  She is currently enrolled in Arizona State University and is working to earn a Master's in Graphic Information Technology.  
 
 Hayley has developed a strong interest in coding and has begun a journey to learn everything about the field to help her grow into a budding developer.  Hayley is also a self-taught artist who enjoys creating and experimenting with styles and character designs.
